@@ -1,0 +1,3 @@
+Desde hace unos días, los usuarios han visto que TheGrefg ha estado bastante ilusionado con su nueva Xbox Series X.
+Y es que la consola de Microsoft ha captado la atención del streamer murciano, afincado en Andorra, por ofrecer sesiones de juego tanto en títulos actuales como en entregas antiguas de Call of Duty; algo posible gracias a sus funciones de retrocompatibilidad.
+No obstante, el sistema desarrollado por los de Redmond cuenta con una particularidad que ha provocado la ira del creador de contenidos
